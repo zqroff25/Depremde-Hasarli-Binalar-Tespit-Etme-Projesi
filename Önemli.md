@@ -1,0 +1,1 @@
+Bu projede kodları direk olarak paylaşamıyorum ancak yazılımda kullanmak için eğittiğim modeli ve program akışıyla ilgili fotoğrafları paylaşabilirim. Merak ettikleriniz için LinkedIn üzerinden ulaşabilirsiniz.  LinkedIn: www.linkedin.com/in/zakiryildiz
